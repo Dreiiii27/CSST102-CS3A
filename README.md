@@ -1,8 +1,3 @@
 # Subject_CSST_101
 
-
-
-![image](https://github.com/user-attachments/assets/99ee2e88-1f34-4fbd-a8a9-b77091ee35ee)
-
-
-![image](https://github.com/user-attachments/assets/7480a9b8-5feb-425b-be12-519eade0555f)
+![image](https://github.com/user-attachments/assets/fe6920d0-7c64-47c5-a3f9-c04a7659b6c3)
